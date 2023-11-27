@@ -20,7 +20,7 @@ I'm an innovative Digital Creative Strategist with over 7 years of experience in
 
 📫 How to reach me:
 - Email: josephpeters136@gmail.com
-- LinkedIn: [Your LinkedIn Profile URL]
+- LinkedIn: https://www.linkedin.com/in/josephpetersw/
 - Website/Portfolio: [www.josephpetersw.com](http://www.josephpetersw.com)
 
 Feel free to reach out if you're interested in collaborating or just want to connect and chat about the potential of digital technologies!
