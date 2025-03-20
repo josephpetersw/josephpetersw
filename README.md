@@ -19,7 +19,6 @@ I'm an innovative Digital Creative Strategist with over 7 years of experience in
 - Community-driven open-source projects
 
 📫 How to reach me:
-- Email: josephpeters136@gmail.com
 - LinkedIn: https://www.linkedin.com/in/josephpetersw/
 - Website/Portfolio: [www.josephpetersw.com](http://www.josephpetersw.com)
 
